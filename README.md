@@ -1,1 +1,3 @@
-# Red-Velvet-Cake-1
+Red Velvet Cake 
+
+Red velvet cake is traditionally a red, red-brown, crimson, or scarlet-colored chocolate layer cake, layered with ermine icing.Traditional recipes do not use food coloring, with the red color due to non-Dutched, anthocyanin-rich cocoa.Velvet cake is thought to have originated in Maryland in the early 20th century. In the 19th century, "velvet" cake, a soft and velvety crumb cake, came to be served as a fancy dessert, in contrast to what had been the more common, coarser-crumbed cake
